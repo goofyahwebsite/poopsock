@@ -7,19 +7,15 @@
 ### Wall of Fame poopsock
 
 here i will show images of the poopsock 
-<a href="https://media.discordapp.net/attachments/880970216107020331/992542239765049445/unknown.png?width=472&height=473"> Poopsock </a>
-<!-- or -->
-<a href="https://media.discordapp.net/attachments/880970216107020331/992542239765049445/unknown.png?width=472&height=473"> Poopsock </a>
+https://media.discordapp.net/attachments/880970216107020331/992542239765049445/unknown.png?width=472&height=473
 
 
-<a href="https://media.discordapp.net/attachments/880970216107020331/992542239765049445/unknown.png?width=472&height=473"> Poopsock </a>
-<!-- or -->
-<a href="https://media.discordapp.net/attachments/880970216107020331/992542239765049445/unknown.png?width=472&height=473> Poopsock </a>
+
+https://media.discordapp.net/attachments/880970216107020331/992542239765049445/unknown.png?width=472&height=473
 
 
-<a href="https://cdn.discordapp.com/attachments/880970216107020331/992540997525458984/unknown.png"> Poopsock </a>
-<!-- or -->
-<a href="https://cdn.discordapp.com/attachments/880970216107020331/992540997525458984/unknown.png"> Poopsock </a>
+
+https://cdn.discordapp.com/attachments/880970216107020331/992540997525458984/unknown.png
 
 
 
